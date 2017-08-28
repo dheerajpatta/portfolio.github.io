@@ -19,7 +19,7 @@ I have the niche for transforming raw data into Insights and presenting compelli
 There is defintely something to be learned every day. Yes, Everyday !
 I strive my best to share my knowledge with the World and inturn Learn in the process.
 
-My Motto "Be the BEST in getting Better !"
+My Motto "Be the BEST at getting Better !"
 
 Alright, enough of me ! 
 Now, Let's go !!
